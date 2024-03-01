@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Kweenmoonie
+- 👀 I’m interested in: anything that isnt sports related
+- 🌱 I’m currently learning: Multimedia communications
+- 💞️ I’m looking to collaborate on: no
+- 📫 How to reach me: dont
+- 😄 Pronouns: any
+- ⚡ Fun fact: farmers markets are just grocery stores but outside
